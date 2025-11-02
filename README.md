@@ -29,12 +29,6 @@ Season 2 focuses more on **teamwork, destiny, and sacrifice**. Loki learns that 
 
 ---
 
-## Major Problem in the Series
-The biggest problem in *Loki* is the chaos caused by **variants** and branching timelines. In Season 1, killing He Who Remains creates infinite timelines that the TVA can no longer control. In Season 2, this escalates into a massive crisis where the Temporal Loom cannot handle the number of new branches, threatening to erase all of reality.  
-This challenge forces Loki and Mobius to make difficult choices—between saving their friends, protecting the TVA, or preserving the multiverse. It also highlights the deeper message of the show: that every choice creates a new path, and even the smallest decisions can change everything.
-
----
-
 ## Favorite Moment
 My favorite moment in the series is when **Loki and Mobius work together to fix the Temporal Loom** in Season 2. Despite the danger and uncertainty, they never give up. Loki realizes that his true purpose is to protect others, even if it means being alone.  
 That moment perfectly represents the main theme of the show—growth, friendship, and the courage to accept one’s destiny.
